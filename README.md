@@ -1,16 +1,14 @@
-## Hi there 👋
 
-<!--
-**veilisode/veilisode** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img src="https://github.com/veilisode/veilisode/blob/main/Untitled6_20261114233729.png" align="left" width="400" alt="Alt text">
+<br/><br><br>
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ <p> sev, donnie or ze
+   ㅤㅤ<br> ㅤㅤㅤit he prns
+   ㅤㅤ<br> ㅤㅤㅤㅤㅤi <3 my friends 
+      <br> ㅤㅤㅤc+h enc w2i
+     <br> <a href="https://github.com/70smusic"> read for more info</a> </p>
+
+
+
+<br/><br>
