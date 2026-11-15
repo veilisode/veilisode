@@ -7,7 +7,7 @@
    ㅤㅤ<br> ㅤㅤㅤit he prns
    ㅤㅤ<br> ㅤㅤㅤㅤㅤi <3 my friends 
       <br> ㅤㅤㅤc+h enc w2i
-     <br> <a href="https://github.com/70smusic"> read for more info</a> </p>
+     <br> <a href="https://repris.org/veils"> read for more info</a> </p>
 
 
 
